@@ -1,0 +1,1 @@
+# COPYWRITE 2010
